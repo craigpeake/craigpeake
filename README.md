@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @craigpeake im a trainee junior developer wih little experience but a good a healthy attitude to leanring with future career advice and teaching i would like to further my skills in this industry weather it be back end or front end i would lke to see where this journey takes me in becomeing more profeshional
+- 👋 Hi, I’m @craigpeake im a trainee junior developer working wih Code Nation on the developer course and have now finshed and passed that im now on the Code Nation MASTER Class course, altho wih little experience in the industry field but a good a healthy attitude to leanring with future career advice and teaching i would like to further my skills in this industry weather it be back end or front end i would lke to see where this journey takes me in becomeing more profeshional
 
 - 👀 I’m interested in ... multiple things from gameing in R.P.Gs to F.P.Ss to playing puzzle games and having to work out the answers to fix a problem and im a fan off horror and sci fi films, i also like to go to conventions includeing a whole array off interests from wht iv said to others functions aswell. 
 
